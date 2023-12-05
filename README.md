@@ -10,3 +10,6 @@ https://www.youtube.com/watch?v=nRwDVD4Q26E
 Setup Notion for productivity - Notion.so - Organize your work
 
 Top productivity tools
+
+The best Mac productivity apps in 2023
+https://zapier.com/blog/best-productivity-apps-mac/
