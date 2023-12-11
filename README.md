@@ -13,3 +13,7 @@ Top productivity tools
 
 The best Mac productivity apps in 2023
 https://zapier.com/blog/best-productivity-apps-mac/
+
+Smashing Magazine
+https://www.smashingmagazine.com/
+https://www.smashingmagazine.com/2021/01/front-end-performance-assets-optimizations/
