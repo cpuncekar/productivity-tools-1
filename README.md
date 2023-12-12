@@ -3,6 +3,8 @@ Productivity Tools that are Helpful for Organization
 
 Google Calendar
 Notion
+https://www.notion.so/product/projects
+https://www.youtube.com/watch?v=p_lPcRQx53k
 
 Atomic Habits - You Should Be Architecting Your Environment Like This
 https://www.youtube.com/watch?v=nRwDVD4Q26E
