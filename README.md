@@ -11,6 +11,11 @@ https://www.youtube.com/watch?v=nRwDVD4Q26E
 
 Setup Notion for productivity - Notion.so - Organize your work
 
+
+How to updated DNS
+How to Change Your DNS A Record in Godaddy
+https://www.youtube.com/watch?v=ENpGaNQLTQI
+
 Top productivity tools
 
 The best Mac productivity apps in 2023
